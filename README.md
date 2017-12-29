@@ -1,4 +1,4 @@
-![SieuusPlaysModpack](https://i.imgur.com/QmYSMf4.png
+![SieuusPlaysModpack](https://i.imgur.com/QmYSMf4.png)
 
 ## Downloads disponiveis em:
 
